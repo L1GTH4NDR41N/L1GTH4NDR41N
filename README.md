@@ -4,9 +4,6 @@
 <br>
 
 
-<img width="2000" height="2000" alt="1000476922" src="https://github.com/user-attachments/assets/2092143e-caa3-4c2c-bbdc-902c5cee3a07" />
 
-
-
-
-<img width="2048" height="2048" alt="1000476916" src="https://github.com/user-attachments/assets/cd538e0b-a7d2-4622-a2de-39cd3b7047cd" />
+<img width="2000" height="2000" alt="1000476926" src="https://github.com/user-attachments/assets/101512bd-85f9-4d4a-b213-0844dbe110da" />
+<img width="2048" height="2048" alt="1000476925" src="https://github.com/user-attachments/assets/343b199f-fef8-4523-9c10-4e50c135782a" />
