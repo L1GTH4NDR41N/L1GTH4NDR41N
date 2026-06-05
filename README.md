@@ -1,7 +1,1 @@
-<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/0b435c7e-623d-48d1-960d-85acfca932f2" />
-
-
-<br>
-
-
-<img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/0c05d108-52ca-4de0-872b-0b8bb7b6942f" />
+<img width="516" height="483" alt="𝒢𝑒𝓇𝒾𝓉𝒶___ᵍᵉʳᵐᵃⁿʸ_____𝙰_𝓳𝓸𝔂𝓸𝓾𝓼_𝕤𝕔𝕖𝕟𝕥_ƒσя_ᨮׁׅ֮ᨵׁׅׅυׁׅ____Ｍｙ_𝓛𝓸𝓿𝓮___-removebg-preview" src="https://github.com/user-attachments/assets/af3cad82-395b-48b5-82a5-01c78d882ea7" />
