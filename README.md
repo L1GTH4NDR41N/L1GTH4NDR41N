@@ -7,4 +7,10 @@
 <p align="center">
 $\color{#cb185f}{\textsf{Sey       /          dniucf  }}$ <br>
 
+<p align="center">
+$\color{#2fab84}{\textsf{cutes}}$ <br>
+
+<p align="center">
+<a href="https://github.com/snowflak3ss/">💓</a>　
+<a href="https://github.com/Falling-Leafs/">💓</a>　
 
