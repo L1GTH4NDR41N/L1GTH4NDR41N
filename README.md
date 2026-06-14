@@ -1,4 +1,4 @@
-<img width="516" height="483" alt="𝒢𝑒𝓇𝒾𝓉𝒶___ᵍᵉʳᵐᵃⁿʸ_____𝙰_𝓳𝓸𝔂𝓸𝓾𝓼_𝕤𝕔𝕖𝕟𝕥_ƒσя_ᨮׁׅ֮ᨵׁׅׅυׁׅ____Ｍｙ_𝓛𝓸𝓿𝓮___-removebg-preview" src="https://github.com/user-attachments/assets/af3cad82-395b-48b5-82a5-01c78d882ea7" />
+<img width="400" height="200" alt="tumblr_08bda7ed40368fb845df5fe7e5fc327e_639afa90_400" src="https://github.com/user-attachments/assets/3bea2adf-7d6c-4b35-8f05-d2c57ab97eaa" />
 
 
 <br>
